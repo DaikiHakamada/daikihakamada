@@ -1,4 +1,0 @@
-# daikihakamada
-# daikihakamada
-# daikihakamada
-# daikihakamada
